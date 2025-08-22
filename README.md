@@ -1,2 +1,2 @@
-Seja vem vindo a meu Porifólio! 
+Seja bem vindo a meu Porifólio! 
 (:
